@@ -1,4 +1,3 @@
-# pfp
 my favorite pfp's and banners :3
 
 ## Top 10
